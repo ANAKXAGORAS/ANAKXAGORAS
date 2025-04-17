@@ -1,6 +1,9 @@
 ## @CriticallyFathering
 
+please check rentry before attacking me.
 https://rentry.co/dofehnba/edit
+
+
 
 
 
