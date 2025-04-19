@@ -1,6 +1,6 @@
 ## @CriticallyFathering
 
-Public apology: https://rentry.co/v5ccd6np
+Public apology: https://rentry.co/parodysREPLY
 
 
 
