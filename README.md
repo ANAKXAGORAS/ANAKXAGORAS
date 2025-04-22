@@ -2,6 +2,7 @@
 
 Public apology: https://rentry.co/parodysREPLY
 
+Hi my name is Parody. I use my neighbor's internet and live off child support.
 
 
 
