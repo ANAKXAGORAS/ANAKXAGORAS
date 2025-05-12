@@ -4,8 +4,7 @@
 
 Hi my name is Parody. I use my neighbor's internet and live off child support.
 
-
-![image](https://github.com/user-attachments/assets/f492a8ff-79f5-49be-887a-def21bfb02f4)
+<img width="1080" alt="image" src="https://github.com/user-attachments/assets/3a735602-5866-4e40-b645-70ad32b2d2f5" />
 
 
 
