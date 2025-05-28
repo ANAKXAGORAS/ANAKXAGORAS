@@ -2,7 +2,8 @@
 
 
 
-Hi my name is Parody. I use my neighbor's internet and live off child support. ![image](https://github.com/user-attachments/assets/36e4c07c-339b-4d4a-8d17-b1c2d0b3987a)
+Hi my name is Parody. I use my neighbor's internet and live off child support. <img width="1080" alt="image" src="https://github.com/user-attachments/assets/d43a9086-719f-4fac-a5ab-8dfb3b4ba390" />
+
 
 
 
