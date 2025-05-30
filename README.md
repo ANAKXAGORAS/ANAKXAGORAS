@@ -13,7 +13,7 @@ a gift from Vin to me for father's day 🤑🤑♥️♥️♥️
 
 ![img](https://cdn.discordapp.com/attachments/1279683842852126721/1377975289937662012/Untitled43_20250530194115.png?ex=683aeafe&is=6839997e&hm=ca37b7fe162a23fb95e760fdbfbf59e9f53c59c8a2d655e520144ec78bd663fc&)
 
-![img](https://media.discordapp.net/attachments/1327632818896896122/1377991531205759077/lv_0_20250530204356.mp4?ex=683afa1e&is=6839a89e&hm=13b66111ed2d996a0c7fe5f57737fe6a92aa1fe8fe07026bf62811f1a529e37e&)
+![Video Title](https://media.discordapp.net/attachments/1327632818896896122/1377991531205759077/lv_0_20250530204356.mp4?ex=683afa1e&is=6839a89e&hm=13b66111ed2d996a0c7fe5f57737fe6a92aa1fe8fe07026bf62811f1a529e37e&)
 
 credit: all drawings here are by Vinnie/Pierce and I love collecting them
 
