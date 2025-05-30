@@ -11,6 +11,7 @@ Hi my name is Parody. I use my neighbor's internet and live off child support. <
 a gift from Vin to me for father's day 🤑🤑♥️♥️♥️
 (yes I cried shut up I feel so appreciated /rolls eyes)
 
+![img](https://cdn.discordapp.com/attachments/1279683842852126721/1377975289937662012/Untitled43_20250530194115.png?ex=683aeafe&is=6839997e&hm=ca37b7fe162a23fb95e760fdbfbf59e9f53c59c8a2d655e520144ec78bd663fc&)
 
 
 
